@@ -2,4 +2,4 @@
 - 👀 I’m interested to the GAMING !!!!!!!!!!!! :))))))))))))))
 - 🌱 I’m currently learning how to create a game on ue5.
 - 💞️ I’m looking to collaborate on a game.
-- 📫 How to reach me ...
+- 📫 How to reach me : just use my discord "Cameraxis#9528"
